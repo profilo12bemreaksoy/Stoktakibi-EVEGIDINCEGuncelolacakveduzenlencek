@@ -1,1 +1,1 @@
-Stoktakibi/EVEGIDINCEGuncelolacakveduzenlencek
+Stoktakibi/EVEGIDINCEGuncelolacakveBENduzenlencem
